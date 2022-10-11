@@ -1,1 +1,0 @@
-# xdriyad.github.io
